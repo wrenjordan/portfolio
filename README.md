@@ -6,5 +6,5 @@
 - 💬 Ask me about **Anything**!
 - 📫 How to reach me: **wren.r.jordan@gmail.com**
 - 😄 Pronouns: **He/Him**
-- ⚡ Fun fact: **Die Hard Ravens Fan**!
+- ⚡ Fun fact: **Die Hard Ravens Fan** !
 -->
