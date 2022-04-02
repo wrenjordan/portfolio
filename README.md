@@ -7,4 +7,3 @@
 - 📫 How to reach me: **wren.r.jordan@gmail.com**
 - 😄 Pronouns: **He/His**
 - ⚡ Fun fact: **Die Hard Ravens Fan**!
--->
